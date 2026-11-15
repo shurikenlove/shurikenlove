@@ -1,6 +1,11 @@
 
-<p align="center">
-<img width="250" height="250" alt="mapicc chibi" src="https://github.com/user-attachments/assets/7b932c27-64d7-45d1-b5c9-4a70f984abd4" /> <img width="250" height="250" alt="roshambo chibi" src="https://github.com/user-attachments/assets/e7c0758b-580b-47d0-8342-074b689d47a6" />
-<p align="center"> <a href="https://pronouns.cc/@shurikenlove">prns</a>  ♡ <a href="https://shurikenlove.atabook.org/">ata</a>
+<div align="center">
+<img width="250" height="250" alt="baba 1" src="https://github.com/user-attachments/assets/a9170a04-119e-4f43-b8b1-af9c1e852778" />
+<img width="250" height="250" alt="baba 2" src="https://github.com/user-attachments/assets/d770f741-e54d-415f-af3a-d8d9a7c7d733" />
+
+
+  <a href="https://pronouns.cc/@shurikenlove">prns</a>  ♡ <a href="https://shurikenlove.atabook.org/">ata</a>
 
 idk how github works please spare me 
+
+$\color{#a70200}{\text{TESTEO}}$ </p>
