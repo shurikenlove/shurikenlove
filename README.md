@@ -12,7 +12,7 @@ $\color{#924031}{\text{Whiny pleading and stupid explanations !}}$ </p>
 
 
 
-<a href="https://pronouns.cc/@shurikenlove">prns</a>  ♡ <a href="https://shurikenlove.atabook.org/">ata</a>
+<a href="https://pronouns.cc/@shurikenlove">prns.cc</a>  -♡-  <a href="https://shurikenlove.atabook.org/">atabook</a>
 
 
   
