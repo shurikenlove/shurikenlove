@@ -11,9 +11,9 @@ $\color{#924031}{\text{Whiny pleading and stupid explanations !}}$ </p>
 
 
 
-<p align="center"> <img width="20" height="20" alt="6dbed546-869c-4f79-99ea-5a813824e868-0" src="https://github.com/user-attachments/assets/0229e2cc-2883-40c2-8c64-ddb18ce117e6" /> 
+
 <a href="https://pronouns.cc/@shurikenlove">prns</a>  ♡ <a href="https://shurikenlove.atabook.org/">ata</a>
- <img width="20" height="20" alt="c6b432c5-44ec-497e-9a6e-538b0ca08e08-0" src="https://github.com/user-attachments/assets/be1cea21-c7fd-4aeb-ba31-ac3b25b64a60" />
+
 
   
   $\color{#924031}{\text{Treat me like youre better with no hesitation ,}}$ </p>
