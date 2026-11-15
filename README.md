@@ -5,7 +5,7 @@ $\color{#924031}{\text{Whiny pleading and stupid explanations !}}$ </p>
   
   $\color{#9c9dd8}{\text{Desperate begging to avoid your separation ,}}$ </p>
   
-<p align="center"> <img width="970" height="500" alt="duality" src="https://github.com/user-attachments/assets/5566c91d-8b3f-4bfb-998d-152675cbdef7" />
+<p align="center"> <img width="770" height="400" alt="duality" src="https://github.com/user-attachments/assets/5566c91d-8b3f-4bfb-998d-152675cbdef7" />
 
 
 
